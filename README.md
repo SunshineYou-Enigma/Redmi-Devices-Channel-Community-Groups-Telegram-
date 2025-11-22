@@ -202,14 +202,15 @@ https://t.me/flouritecommunity
   [ Photography ] : https://t.me/spring_captures
 
  ### Notes :  
- There can be some missing channels and community groups in the list, i will add as soon as notice and will update whatt are missing!  
+ There can be some missing channels and community groups in the list, i will add as soon as notice and will update what are missing!  
 
- ### The Lisitng Classification is simple :
+ ### The Listing Classification is simple :
  First link is always a Community group rest are as follows the mentions
 
 _________________________________  
-> Created by ~ @Sunshineyou_enigma { https://web.telegram.org/a/#604907152 ] 🌿   
+> Created by ~ @Sunshineyou_enigma { https://web.telegram.org/a/#604907152 ] 🌿
+> Discord Server ~ [Custom workspace HUB | PC & Android 🌴](https://discord.gg/tqvh5vhc)     
 > Your One Stop Community to stay connected : [@CustomROMsupportofficial 🌿  ](https://t.me/customromsupportofficial)   
 > Follow GitHub & Telegram for Resources and Updates [@CustomROMsupportHUB 🌿](https://t.me/Customromsupporthub)    
 > Community_Feed [@QENeuralSync 🌿  ](https://t.me/QENeuralSync)  
-> Discord Server ~ [Custom workspace HUB | PC & Android 🌴](https://discord.gg/tqvh5vhc)  
+
